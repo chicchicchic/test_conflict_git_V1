@@ -1,4 +1,3 @@
 helhahalo
 
-hello, khaasdasdsnh thy
-hello, khasdasdnh van anh
+hello, khanh hahavan anh
