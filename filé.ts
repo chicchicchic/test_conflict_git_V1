@@ -1,3 +1,3 @@
 helhahalo
 
-hello, khanh hahavan anh thy
+hello, khanh hahavan anh
